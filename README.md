@@ -1,3 +1,7 @@
+<p align="center">
+  <img src="https://github.com/blinkslide/blinkslide.github.io/blob/main/ben%20trombone%202.jpg?raw=true" />
+</p>
+
 **Bio**  
 
 **Ben Link** is a versatile trombonist, composer, educator, and graphic artist based in Minneapolis, Minnesota. Ben honed his craft studying trombone performance at Indiana University under renowned professors David Baker and Dee Stewart, as well as at McNally Smith College of Music with Peter Whitman and Scott Agster.    
