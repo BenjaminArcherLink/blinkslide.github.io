@@ -12,7 +12,7 @@ In addition to leading his own quartet and participating in a range of jazz and 
 As an educator, Ben teaches private lessons and has also led clinics in both Minnesota and Norway and worked with students at the Minnesota Institute for Talented Youth (MITY), a jazz summer camp. As a graphic artist Ben has designed cover art for albums and sold some original digital and hand drawn art.    
   
 **Clips**  
-[A solo](https://www.youtube.com/watch?v=gC49UJ4yMx8) from a performance with the New Orleans jazz band The Monday Club.
+[A solo](https://www.youtube.com/watch?v=gC49UJ4yMx8) from a performance with the New Orleans jazz band The Monday Club.  
 [A full concert](https://www.youtube.com/watch?v=4eKOjqB8h-A) from the 2014 Monterey Jazz Festival main stage with Davina and the Vagabonds in 2014.    
 [Here](https://www.youtube.com/watch?v=u1OHnaX6T34) is a video of a performance of my composition Alien Abduction for the experimental group Trombone Band.    
 [This](https://soundcloud.com/benjaminalink/tiny-tuesday-collage?si=78dfe57b2d624b3e8cf3b074abd5bb24&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing) is a track that I created with midi and samples to accompany a presentation at Patrick Larkin's Tiny Tuesday series in Minneapolis.    
